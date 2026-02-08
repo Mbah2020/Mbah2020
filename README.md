@@ -38,8 +38,8 @@ When I'm not coding, you can find me:
 
 ### 📫 Connect with Me
 - [Telegram](https://t.me/M_bah85)
-- [LinkedIn](https://www.linkedin.com/in/YourLinkedInProfile)
-- 
+- [LinkedIn](https://www.linkedin.com/in/mohammad-bahmaan/)
+- [Instagram](https://www.instagram.com/mmd._bah/)
 
 ---
 ⭐️ _Always eager to learn, collaborate, and build meaningful digital experiences._
